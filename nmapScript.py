@@ -1,12 +1,8 @@
-# Criptografado por @AZZ4DEFALT bb!
-# Criptografado por @AZZ4DEFALT bb!
- 
  # Criptografado por @AZZ4DEFALT bb!
- 
  # Criptografado por @AZZ4DEFALT bb!
- 
  # Criptografado por @AZZ4DEFALT bb!
- 
+ # Criptografado por @AZZ4DEFALT bb!
+ # Criptografado por @AZZ4DEFALT bb!
  # Criptografado por @AZZ4DEFALT bb!
  # Criptografado por @AZZ4DEFALT bb!
  # Criptografado por @AZZ4DEFALT bb!
